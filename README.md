@@ -9,7 +9,7 @@
 <br/>
 <br/>
 
-　　　　　 ⤷ 　　 ﹒　 　 　　 [ata (wip) ]() 　　 ♡　　　　　⌒  　[prns.page (wip) ]() 　 　e　 　⟡　　　　　( ᴗ ̫ ᴗ )　　[carrd (wip)]()　　⋌　　
+　　　　　 ⤷ 　　 ﹒　 　 　　 [ata (wip) ]() 　　 ♡　　　　　⌒  　[prns.page (wip) ]() 　 　e　 　⟡　　　　　( ᴗ ̫ ᴗ )　　[carrd (wip)]()　　　　
 
 <br/>
 <br/>
