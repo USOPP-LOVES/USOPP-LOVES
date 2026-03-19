@@ -11,7 +11,7 @@
 <br/>
 <br/>
 
-　　　　　 ⤷ 　　 ﹒　 　 　　 [ata](https://luuso.atabook.org/) 　　 ♡　　　　　⌒  　[prns.page](https://en.pronouns.page/@USOPP-LOVES) 　 　e　 　⟡　　　　　( ᴗ ̫ ᴗ )　　[carrd (wip)]()　　　　
+　　　　　 ⤷ 　　 ﹒　 　 　　 [ata](https://luuso.atabook.org/) 　　 ♡　　　　　⌒  　[prns.page](https://en.pronouns.page/@USOPP-LOVES) 　 　e　 　⟡　　　　　( ᴗ ̫ ᴗ )　　[carrd](https://usopp-loves.carrd.co/)　　　　
 
 <br/>
 <br/>
